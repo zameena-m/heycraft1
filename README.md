@@ -11,8 +11,8 @@ DNAinfo and Gothamist might be rival publications but Old York City provides a s
 
 <strong>Health and Science:</strong>  Antivaxxers are probably concentrated in one of these "hip" neighborhoods, if they're not then where are they? Affluent neighborhoods? Is there a correlation between this new wave of thinking and how close these thinkers live to each other?
 
-<strong>Urban:</strong>  
+<strong>Urban:</strong>  Any story on this website can be an urban story (right?)
 
-<strong>Business:</strong> 
+<strong>Business:</strong> Business improvement districts stimulate local economies through private-public partnerships, what role do these play in the different boroughs?
 
-<strong>International:</strong>  
+<strong>International:</strong> Immigration stories! Numbers! So many options!
